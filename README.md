@@ -5,7 +5,7 @@
 - 🤝 I’m open to collaborations on cool web apps, UI/UX projects, and anything that sparks curiosity  
 - 📫 Let’s connect! find me on [LinkedIn](www.linkedin.com/in/priyanka-kumari-221b28290)  
 - 😄 Pronouns: She/Her 
-- ⚡ Fun Fact: I believe good design is like good coffee — **strong, smooth, and energizing .
+- ⚡ Fun Fact: I believe good design is like good coffee — "strong, smooth, and energizing."
 
 ---
 
